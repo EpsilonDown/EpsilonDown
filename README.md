@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EpsilonDown
 - 👀 I’m interested in games and physics and comics and stuffs
 - 🌱 I’m currently learning hollow knight modding...
-- 📫 How to reach me : anything please
+- 📫 How to reach me : domin1204u@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
